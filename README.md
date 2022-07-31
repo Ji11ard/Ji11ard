@@ -1,3 +1,3 @@
-Hi, I’m @Ji11ard
-
-I’m interested in Swift, Obsidian, DataView, and all things productivity or procrastination - in equal measure. 
+☕️☕️☕️
+Ji11ard Here - interested in Swift, Obsidian, DataView, and all things productivity or procrastination - in equal measure. 
+☕️☕️☕️
